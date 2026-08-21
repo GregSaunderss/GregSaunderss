@@ -6,7 +6,9 @@
 <div align="center">
   
 <h3>$$\color{#C53E41}{\text{Mr. Steal yo man}} $$</h3>
-Connie (18)<br>𐚁<br>They/Them<br>
+Connie (18)<br>
+𐚁<br>
+They/Them<br>
 Greg Saunders is hot and sexy<br><br>
 <details><summary>
 BYI: </summary> i'm not always looking at my screen.<br> if i don't respond immediately, don't take it personally!!.<br><br> </details>
