@@ -1,7 +1,7 @@
  <img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img align=Center src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 
 
-<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" align="left" width="419">
+<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" align="left" width="410">
 
 <h3>$$\color{#C53E41}{\text{Mr. Steal yo man}} $$</h3>
 Connie (18)ㅤ𐚁ㅤThey/Them<br>
@@ -13,7 +13,7 @@ Greg Saunders is hot and sexy<br><br>
 - Under 16
 - general Idiots(basic DNI criteria) 
 - Jayroy
-   - (Fans of the ship are... fine. Just don't sit or interact with me for the ship)<br><br>
+   - Fans of the ship are... fine. Just don't sit or interact with me for the ship<br><br>
 **INT:** 
 - anyone who isn't in my dni!! i love talking with people, so if you want to sit by me or talk with me, feel free!!<br><br>
 **FANDOMS:** 
@@ -21,7 +21,7 @@ Greg Saunders is hot and sexy<br><br>
 - RDR
 - LMK
 - MARVEL
-  - (X-MEN)
+  - X-MEN specifically 
 - HAIKYUU!!
  - (Mostly DC and X-Men those are my mains)<br><br>
 <img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
