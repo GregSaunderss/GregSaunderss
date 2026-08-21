@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
+<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
 <img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" width="270px" align="left">
 <img src="https://i.postimg.cc/HnMK9FNq/vigi.png" width="300px" align="right"><br>
@@ -34,5 +34,5 @@ FANDOMS:</summary>
  
 
 <div align="center">
-<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
+<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
