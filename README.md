@@ -1,8 +1,10 @@
- <img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400> <img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400> 
-
-<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" align="left" width="230"> <img src="https://media.discordapp.net/attachments/1537066968086093938/1539314437759176774/vigi.png?ex=6a892989&is=6a87d809&hm=edecf2aba15bfb87f974bcc4725d8934315679e5bc0a0e074b79ca087f513532&=&format=webp&quality=lossless&width=503&height=512" align="right" width="230"> 
-
-
+<div align="center">
+<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
+</div>
+<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" width="270px" align="left">
+<img src="https://i.postimg.cc/HnMK9FNq/vigi.png" width="300px" align="right"><br>
+<div align="center">
+  
 <h3>$$\color{#C53E41}{\text{Mr. Steal yo man}} $$</h3>
 Connie (18)ㅤ𐚁ㅤThey/Them<br>
 Greg Saunders is hot and sexy<br><br>
@@ -26,5 +28,5 @@ FANDOMS:</summary>
   - X-MEN specifically 
 - HAIKYUU!!
  - (Mostly DC and X-Men those are my mains)<br><br> </details>
-
-<img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img align="center" src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
+<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
+</div>
