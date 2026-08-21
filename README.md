@@ -14,21 +14,21 @@ Greg Saunders is hot and sexy<br><br>
 BYI: </summary> i'm not always looking at my screen.<br> if i don't respond immediately, don't take it personally!!.<br><br> </details>
 <details><summary>
 DNI:</summary> 
-- Under 16
-- general Idiots(basic DNI criteria) 
-- Jayroy
-  - Fans of the ship are... fine. Just don't sit or interact with me for the ship<br><br> </details>
+ Under 16<br>
+ general Idiots(basic DNI criteria)<br>
+ Jayroy<br><br>
+   Fans of jayroy are... fine. Just don't sit or interact with me for the ship<br><br> </details>
   <details><summary>
 INT: </summary>
-- anyone who isn't in my dni!! i love talking with people, so if you want to sit by me or talk with me, feel free!!<br><br> </details>
+anyone who isn't in my dni!! i love talking with people, so if you want to sit by me or talk with me, feel free!!<br><br> </details>
  <details><summary>
 FANDOMS:</summary>
-- DC
-- RDR
-- LMK
-- MARVEL
- - X-MEN specifically
-- HAIKYUU!!
+- DC<br>
+- RDR<br>
+- LMK<br>
+- MARVEL<br>
+ - (X-MEN specifically)<br>
+- HAIKYUU!!<br><br>
   -(Mostly DC and X-Men those are my mains)<br><br> </details>
 </div>
 
