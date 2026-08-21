@@ -6,7 +6,7 @@
 <div align="center">
   
 <h3>$$\color{#C53E41}{\text{Mr. Steal yo man}} $$</h3>
-Connie (18)ㅤ𐚁ㅤThey/Them<br>
+Connie (18)<br>𐚁<br>They/Them<br>
 Greg Saunders is hot and sexy<br><br>
 <details><summary>
 BYI: </summary> i'm not always looking at my screen.<br> if i don't respond immediately, don't take it personally!!.<br><br> </details>
@@ -28,6 +28,6 @@ FANDOMS:</summary>
   - X-MEN specifically 
 - HAIKYUU!!
  - (Mostly DC and X-Men those are my mains)<br><br> </details>
+<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
-<img align=center src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
-
+<br clear="all"> <div align="center"> <img trlalala> </div>
