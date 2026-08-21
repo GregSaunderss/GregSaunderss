@@ -29,7 +29,7 @@ FANDOMS:</summary>
 - MARVEL<br>
  - (X-MEN specifically)<br>
 - HAIKYUU!!<br><br>
-  -(Mostly DC and X-Men those are my mains)<br><br> </details>
+  (Mostly DC and X-Men those are my mains)<br><br> </details>
 </div>
  
 
