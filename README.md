@@ -28,5 +28,5 @@ FANDOMS:</summary>
   - X-MEN specifically 
 - HAIKYUU!!
  - (Mostly DC and X-Men those are my mains)<br><br> </details>
-<img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
+<img align=center src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
