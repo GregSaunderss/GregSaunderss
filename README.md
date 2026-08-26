@@ -18,7 +18,7 @@ DNI:</summary>
  general Idiots(basic DNI criteria)<br>
  Jayroy<br><br>
    Fans of jayroy are... fine. Just don't sit or interact with me for the ship<br><br>
-In all situations C+H is fine (besides general idiots) i'd just rather no actual interacting.<br> in terms of under 16, it is because i am an adult, i would rather have children be safe online then have more people i can talk to<br><br> </details>
+In all situations C+H is fine (besides general idiots) i'd just rather no actual interacting.<br><br> </details>
   <details><summary>
 INT: </summary>
 anyone who isn't in my dni!! i love talking with people, so if you want to sit by me or talk with me, feel free!!<br><br> </details>
