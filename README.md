@@ -1,8 +1,8 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
-<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" width="275px" align="left">
-<img src="https://i.postimg.cc/HnMK9FNq/vigi.png" width="300px" align="right"><br>
+<img src="https://i.postimg.cc/RCc8DxhW/vigii-(1).png" width="290px" align="left">
+<img src="https://i.postimg.cc/HnMK9FNq/vigi.png" width="320px" align="right"><br>
 <div align="center">
   
 <h3>$$\color{#C53E41}{\text{Mr. Steal yo man}} $$</h3>
@@ -14,10 +14,11 @@ Greg Saunders is hot and sexy<br><br>
 BYI: </summary> i'm not always looking at my screen.<br> if i don't respond immediately, don't take it personally!!.<br><br> </details>
 <details><summary>
 DNI:</summary> 
- Under 16<br>
+ Under 16.<br>
  general Idiots(basic DNI criteria)<br>
  Jayroy<br><br>
-   Fans of jayroy are... fine. Just don't sit or interact with me for the ship<br><br> </details>
+   Fans of jayroy are... fine. Just don't sit or interact with me for the ship<br><br>
+In all situations C+H is fine (besides general idiots) i'd just rather no actual interacting.<br> in terms of under 16, it is because i am an adult, i would rather have children be safe online then have more people i can talk to<br><br> </details>
   <details><summary>
 INT: </summary>
 anyone who isn't in my dni!! i love talking with people, so if you want to sit by me or talk with me, feel free!!<br><br> </details>
