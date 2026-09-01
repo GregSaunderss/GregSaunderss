@@ -14,10 +14,10 @@ Greg Saunders is hot and sexy<br><br>
 BYI: </summary> i'm not always looking at my screen.<br> if i don't respond immediately, don't take it personally!!.<br><br> </details>
 <details><summary>
 DNI:</summary> 
- Under 16.<br>
  general Idiots(basic DNI criteria)<br>
  Jayroy<br><br>
    Fans of jayroy are... fine. Just don't sit or interact with me for the ship<br><br>
+   Under 16 IWC<br><br>
 In all situations C+H is fine (besides general idiots) i'd just rather no actual interacting.<br><br> </details>
   <details><summary>
 INT: </summary>
