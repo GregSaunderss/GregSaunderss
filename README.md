@@ -32,8 +32,7 @@ FANDOMS:</summary>
 - HAIKYUU!!<br><br>
   (Mostly DC and X-Men those are my mains)<br><br> </details
  
-  [ATA](https://GregSaunderss.atabook.org) <br>
-  [Strawpage](https://gregsaunderss.straw.page) <br><br> 
+  [ATA](https://GregSaunderss.atabook.org) . [Strawpage](https://gregsaunderss.straw.page) <br><br> 
 </div>
  
 
