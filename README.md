@@ -32,10 +32,11 @@ FANDOMS:</summary>
 - HAIKYUU!!<br><br>
   (Mostly DC and X-Men those are my mains)<br><br> </details
  
-  [ATA](https://GregSaunderss.atabook.org) . [Strawpage](https://gregsaunderss.straw.page) <br><br> 
-</div>
+ </div>
  
 
 <div align="center">
 <img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400><img src="https://64.media.tumblr.com/d12925962b6106aed92453ef63abcbbd/08fd0c8ab3b900e0-cb/s400x600/3cc3a99e51e0057ee2410020f2b93a84a3033d25.pnj" width=400>
 </div>
+
+[ATA](https://GregSaunderss.atabook.org) . [Strawpage](https://gregsaunderss.straw.page) <br><br> 
